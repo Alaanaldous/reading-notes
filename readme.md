@@ -7,9 +7,3 @@ _ :sunglasses: focus on what are you donig
 _ :unamused: remeber the rule "no pain, no gain"
 _ :muscle: and  last but not least beleive in yourself, you can do it!
 
-## My three Growth Mindset Competency are:
-* Constant Improvement
-* Openness
-* Ambition and Initiative
-
-ALAA ALDOUS
